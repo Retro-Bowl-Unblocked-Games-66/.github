@@ -1,4 +1,4 @@
-## Retro Bowl Unblocked Games 66: A Nostalgic Football Adventure
+## Retro Bowl Unblocked Games 66 - Play Now
 
 Retro Bowl Unblocked Games 66 offers an exciting and nostalgic football experience perfect for gamers of all ages. Dive into intuitive gameplay where you manage your own football team, customize players, and strategize your way to victory.
 
